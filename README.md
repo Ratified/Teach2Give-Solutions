@@ -85,4 +85,5 @@ If you have any questions or need further assistance, please feel free to contac
 Thank you for considering my solutions. I hope to have the opportunity to contribute to Teach2Give and demonstrate my skills.
 
 Best regards,
+
 George Kamunge
